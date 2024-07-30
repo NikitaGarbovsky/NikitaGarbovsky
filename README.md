@@ -1,7 +1,7 @@
 ### Where I'm at:
 
-1. Dev Twitter: https://twitter.com/Angledev1
-2. Personal Twitter: https://twitter.com/niki_garbovsky 
+1. Dev X acc: https://x.com/Angledev1
+2. Personal X acc: https://x.com/niki_garbovsky
 
 Good day & Well met!
 <!--
