@@ -1,7 +1,7 @@
 ### Where I'm at:
 
-1. Dev X acc: https://x.com/Angledev1
-2. Personal X acc: https://x.com/niki_garbovsky
+Dev X acc: https://x.com/Angledev1
+
 
 Good day & Well met!
 <!--
